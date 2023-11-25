@@ -1,4 +1,8 @@
-### Hi there 👋
+### Hi, I'm Shreshth Mohan and I love hiking. Here's some proof 😁
+
+![image](https://github.com/shreshthmohan/shreshthmohan/assets/5955802/40533fc8-058d-4f70-8fc6-bb99545f0ac3)
+
+
 
 <!--
 **shreshthmohan/shreshthmohan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
