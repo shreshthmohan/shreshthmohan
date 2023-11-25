@@ -1,4 +1,4 @@
-### Hi, I'm Shreshth Mohan and I love hiking. Here's some proof 😁
+### Hi, I'm Shreshth Mohan and I love hiking 😁
 
 ![image](https://github.com/shreshthmohan/shreshthmohan/assets/5955802/e5010e5c-ed50-492d-895e-90b701c5a445)
 
